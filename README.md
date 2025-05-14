@@ -5,6 +5,9 @@
 🗓 **時間 / Available Dates**:  
 5 月 14 日至 16 日之間（May 14–16 only）
 
+Contact Info:
+Personal Phone: 551-362-9284
+
 ---
 
 ## 1️⃣ 升降桌 Adjustable Table — **$50**
